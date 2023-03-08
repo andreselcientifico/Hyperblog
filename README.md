@@ -5,6 +5,9 @@ es genial como platzi enseña.
 
 ## creado por
 * Andres perez
+* nacido en colombia
+* nacio en el departamento del cesar en colombia
+* fecha de nacimiento 27 / 06 / 1999
 
 
 ## Invito a todos los usuarios a participar de el
